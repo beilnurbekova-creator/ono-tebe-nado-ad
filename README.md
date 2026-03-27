@@ -1,1 +1,1 @@
-[README.md](https://github.com/user-attachments/files/26301470/README.md)
+https://github.com/beilnurbekova-creator/ono-tebe-nado-ad
